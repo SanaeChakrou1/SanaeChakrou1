@@ -6,6 +6,6 @@
 🌱 Continuously exploring and learning the latest advancements in AI
 📫 Reach me at chakrousanae@gmail.com
 
-🔗 LinkedIn
+🔗 LinkedIn: Sanae Chakrou
 
 
